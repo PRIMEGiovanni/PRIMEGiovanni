@@ -1,16 +1,17 @@
-## Hi there 👋
+## **bem vindo ao meu perfil** 🤯
 
-<!--
-**PRIMEGiovanni/PRIMEGiovanni** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Giovanni Felikzaki Borchoski**
 
-Here are some ideas to get you started:
+insta
+**@borchoski**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+segue lá 🤙
+
+
+
+![putin-walking](https://github.com/user-attachments/assets/a0a1018a-efe8-4291-8fdc-789300545618)
+
+
+
+
+![palmirinha-all-good](https://github.com/user-attachments/assets/5d26fc0a-b707-4a1c-bec9-4093c2aa071e)
