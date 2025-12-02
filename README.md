@@ -7,6 +7,11 @@ insta
 
 segue lá 🤙
 
+15y
+
+2010 🤫🧏‍♂️
+
+✋🗿🤚
 
 
 ![putin-walking](https://github.com/user-attachments/assets/a0a1018a-efe8-4291-8fdc-789300545618)
